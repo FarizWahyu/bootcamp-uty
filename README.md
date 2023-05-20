@@ -1,0 +1,2 @@
+# bootcamp-uty
+kurang waktu
